@@ -12,3 +12,5 @@ Skins from osu! streamer [Niscoro](https://www.twitch.tv/niscoro)
 ![](https://i.imgur.com/H6TLgVS.png)
 # [BTMC's Freedom Dive](https://github.com/BTMC-techteam/skins/releases/download/skins/-.BTMC.Freedom.Dive.-.Custom.hitsounds.osk)┃[BTMC](https://www.twitch.tv/btmc)'s Skin
 ![](https://i.imgur.com/llRaSXX.png)
+# [ryanidkwhattonamethis](https://rynk.s-ul.eu/RJ2d3dTO)┃[RyuK](https://www.twitch.tv/ryuk)'s Skin
+![](https://i.imgur.com/WLixfDp.png)
