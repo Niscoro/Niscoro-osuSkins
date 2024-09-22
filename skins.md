@@ -8,3 +8,7 @@ Skins from osu! streamer [Niscoro](https://www.twitch.tv/niscoro)
 ![](https://i.imgur.com/DqBqZrB.png)
 # [Prawilosc vJP without followpoints](https://www.mediafire.com/file/fbcs101xigtwje0/Prawilosc+vJP+without+followpoints.osk/file)┃[Rafis](https://www.twitch.tv/rafis0)'s Skin
 ![](https://i.imgur.com/NISNhwS.png)
+# [Vaxei 2023](https://www.mediafire.com/file/828jzhsmc1isx5j/Vaxei_2023.osk/file)┃[Vaxei](https://www.twitch.tv/vaxei_osu)'s Skin
+![](https://i.imgur.com/H6TLgVS.png)
+# [BTMC's Freedom Dive](https://github.com/BTMC-techteam/skins/releases/download/skins/-.BTMC.Freedom.Dive.-.Custom.hitsounds.osk)┃[BTMC](https://www.twitch.tv/btmc)'s Skin
+![](https://i.imgur.com/llRaSXX.png)
