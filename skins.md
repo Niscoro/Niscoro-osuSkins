@@ -6,3 +6,5 @@ Skins from osu! streamer [Niscoro](https://www.twitch.tv/niscoro)
 ![](https://i.imgur.com/GqkA0sk.png)
 # [varv_xcs](https://mega.nz/file/eP4jSCxI#aYFXPVSQ3ZQZLjx7LOsgLwBC64HD85C2k4lnt08vSE8)┃[Varvalian](https://www.twitch.tv/varvalian)'s Skin
 ![](https://i.imgur.com/DqBqZrB.png)
+# [Prawilosc vJP without followpoints](https://www.mediafire.com/file/fbcs101xigtwje0/Prawilosc+vJP+without+followpoints.osk/file)┃[Rafis](https://www.twitch.tv/rafis)'s Skin
+![](https://i.imgur.com/NISNhwS.png)
