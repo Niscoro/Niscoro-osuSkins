@@ -1,5 +1,6 @@
 # Niscoro's osu! skins 
 **NO SKINS ARE CREATED BY ME**
+*though some skins may by an edit by me*
 <br>
 Skins used by osu! streamer [Niscoro](https://www.twitch.tv/niscoro)
 <br>
@@ -22,3 +23,5 @@ If the skin you want isn't here, please ask the streamer or chat
 ![](https://i.imgur.com/xzzLIJ0.png)
 # [- 《CK》 WhiteCat 2.1 ~ old-blue](https://www.mediafire.com/file/bdhyisl4gt0mvh3/-_%25E3%2580%258ACK%25E3%2580%258B_WhiteCat_2.1_%257E_old-blue.osk/file)┃[WhiteCat](https://www.twitch.tv/whitecatosu)'s Skin
 ![](https://i.imgur.com/HWssDmP.png)
+# [tekkito +kablaze numbers](https://www.mediafire.com/file/l03q0dcvmuchq17/tekkito2_%252Bkablaze_numbers.osk/file)┃[tekkito](https://www.twitch.tv/tekkito)'s Skin
+![](https://i.imgur.com/9jpLeBu.png)
