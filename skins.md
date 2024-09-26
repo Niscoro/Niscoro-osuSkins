@@ -18,3 +18,5 @@ If the skin you want isn't here, please ask the streamer or chat
 ![](https://i.imgur.com/WLixfDp.png)
 # [Mathi alfie ver](https://drive.google.com/file/d/1yGN680Qs3WbdugGOD4Gy2XAg_fei3MQI/view)┃[Mathi](https://www.twitch.tv/mathi)'s Skin
 ![](https://i.imgur.com/xzzLIJ0.png)
+# [- 《CK》 WhiteCat 2.1 ~ old-blue](https://www.mediafire.com/file/bdhyisl4gt0mvh3/-_%25E3%2580%258ACK%25E3%2580%258B_WhiteCat_2.1_%257E_old-blue.osk/file)┃[WhiteCat](https://www.twitch.tv/whitecatosu)'s Skin
+![](https://i.imgur.com/HWssDmP.png)
