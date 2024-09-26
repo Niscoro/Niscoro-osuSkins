@@ -1,4 +1,6 @@
 # Niscoro's osu! skins 
+**NO SKINS ARE CREATED BY ME**
+<br>
 Skins from osu! streamer [Niscoro](https://www.twitch.tv/niscoro)
 <br>
 If the skin you want isn't here, please ask the streamer or chat
