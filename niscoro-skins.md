@@ -19,3 +19,5 @@ There are also other skins I may have used before here: [Other Skins](otherSkins
 ![](https://i.imgur.com/dbjjWqF.png)
 # [dt yellow](https://tinyurl.com/yc44busb)
 ![](https://i.imgur.com/urFWwmV.png)
+# [dt elohere](https://tinyurl.com/mu82zn99)
+![](https://i.imgur.com/1D8rJsA.png)
