@@ -8,5 +8,5 @@ If the skin you want isn't here, please ask the streamer or chat
 There are also other skins I may have used before here: [Other Skins](otherSkins)
 # [aristia edit](https://tinyurl.com/tt7zppy8)
 ![](https://i.imgur.com/hiAYRHO.png)
-# [boop]()
-![](https://i.imgur.com/hiAYRHO.png)
+# [boop](https://tinyurl.com/55vda6th)
+![](https://i.imgur.com/ihknKS5.png)
