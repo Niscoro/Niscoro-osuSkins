@@ -14,7 +14,7 @@ There are also other skins I may have used before here: [Other Skins](otherSkins
 # [dt blue](https://tinyurl.com/4xvmraxp)
 ![](https://i.imgur.com/7YNdOWr.png)
 # [dt green](https://tinyurl.com/4xvmraxp)
-![](https://i.imgur.com/BQOPMWw.png)
+![](https://i.imgur.com/OiCuRq3.png)
 # [dt white](https://tinyurl.com/mupf6cep)
 ![](https://i.imgur.com/dbjjWqF.png)
 # [dt yellow](https://tinyurl.com/yc44busb)
