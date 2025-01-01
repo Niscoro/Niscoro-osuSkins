@@ -9,8 +9,10 @@ If the skin you want isn't here, please ask the streamer or chat
 You can find my main skins here: [Main Skins](niscoro-skins.md)
 # [azerino2023](https://www.mediafire.com/file/q3c6eivdu2c8qrs/azerino2023.osk/file)
 ![](https://i.imgur.com/zESG15p.png)
-# [BTMC's Freedom Dive](https://github.com/BTMC-techteam/skins/releases/download/skins/-.BTMC.Freedom.Dive.-.Custom.hitsounds.osk)┃[BTMC](https://www.twitch.tv/btmc)'s Skin
+# [FREEDOM DiVE↓](https://github.com/BTMC-techteam/skins/releases/download/skins/-.BTMC.Freedom.Dive.-.Custom.hitsounds.osk)┃[BTMC](https://www.twitch.tv/btmc)'s Skin
 ![](https://i.imgur.com/llRaSXX.png)
+# [idke 1.3]()┃[idke](https://www.twitch.tv/idke)'s Skin
+![](https://i.imgur.com/m7eyU16.png)
 # [Mathi alfie ver](https://drive.google.com/file/d/1yGN680Qs3WbdugGOD4Gy2XAg_fei3MQI/view)┃[Mathi](https://www.twitch.tv/mathi)'s Skin
 ![](https://i.imgur.com/xzzLIJ0.png)
 # [plasma (hs)](https://www.mediafire.com/file/711x3za8o94r2yk/plasma_%2528hs%2529.osk/file)┃[Plasma](https://www.twitch.tv/plasmaosu)'s Skin
