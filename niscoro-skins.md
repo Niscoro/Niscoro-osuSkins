@@ -1,4 +1,4 @@
-# Niscoro's main osu! skins 
+# Niscoro's osu! skins 
 **NO SKINS ARE CREATED BY ME**
 *though some skins may by an edit by me*
 <br>
