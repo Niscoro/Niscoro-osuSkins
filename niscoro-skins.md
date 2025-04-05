@@ -8,3 +8,5 @@ If the skin you want isn't here, please ask the streamer or chat
 <br>
 # [mastasz](https://drive.google.com/file/d/1Y8wFEXZGmxeLAREbClpgT-x6ihTtq_lC/view?usp=sharing)
 ![](https://github.com/user-attachments/assets/e3c2ea3c-adf8-4145-a47f-77e35b2e9ced)
+# [_Shield](https://tinyurl.com/32yksx8u)
+![](https://i.imgur.com/iAGhpV6.png)
