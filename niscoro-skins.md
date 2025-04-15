@@ -6,6 +6,8 @@ Skins that may be used by osu! streamer [Niscoro](https://www.twitch.tv/niscoro)
 <br>
 If the skin you want isn't here, please ask the streamer or chat
 <br>
+[CURSOR PACK](https://tinyurl.com/3wfwsbsw)
+<br>
 # [-           chicken](https://tinyurl.com/fpxemznv)
 ![](https://i.imgur.com/YddqpFw.png)
 # [-           chicken dawn](https://tinyurl.com/2emvddb4)
