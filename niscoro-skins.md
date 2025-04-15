@@ -6,13 +6,13 @@ Skins that may be used by osu! streamer [Niscoro](https://www.twitch.tv/niscoro)
 <br>
 If the skin you want isn't here, please ask the streamer or chat
 <br>
-# [-           chicken](https://tinyurl.com/2nc9f5h9)
+# [-           chicken](https://tinyurl.com/fpxemznv)
 ![](https://i.imgur.com/YddqpFw.png)
 # [-           chicken dawn](https://tinyurl.com/2emvddb4)
 ![](https://i.imgur.com/tgTxUBf.png)
-# [-           chicken dt](https://tinyurl.com/syj6bpsk)
+# [-           chicken dt](https://tinyurl.com/2mdz66b7)
 ![](https://i.imgur.com/GSp0jVF.png)
-# [-           chicken ez](https://tinyurl.com/bdhb3te9)
+# [-           chicken ez](https://tinyurl.com/2nwsn2hj)
 ![](https://i.imgur.com/yUczUzp.png)
 # [mastasz](https://drive.google.com/file/d/1Y8wFEXZGmxeLAREbClpgT-x6ihTtq_lC/view?usp=sharing)
 ![](https://github.com/user-attachments/assets/e3c2ea3c-adf8-4145-a47f-77e35b2e9ced)
