@@ -1,5 +1,5 @@
 # Niscoro's osu! skins 
-**NO SKINS ARE CREATED BY ME**
+**NO SKIN'S ASSETS ARE CREATED BY ME**
 *though some skins may by an edit/mix by me*
 <br>
 Skins that may be used by osu! streamer [Niscoro](https://www.twitch.tv/niscoro)
