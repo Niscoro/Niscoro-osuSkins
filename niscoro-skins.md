@@ -1,5 +1,4 @@
 # Niscoro's osu! skins 
-*some skins may by an edit/mix by me*
 <br>
 Skins that may be used by osu! streamer [Niscoro](https://www.twitch.tv/niscoro)
 <br>
