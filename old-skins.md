@@ -32,6 +32,22 @@ If the skin you want isn't here, please ask the streamer or chat
 ![](https://i.imgur.com/H6TLgVS.png)
 # [- 《CK》 WhiteCat 2.1 ~ old-blue](https://www.mediafire.com/file/bdhyisl4gt0mvh3/-_%25E3%2580%258ACK%25E3%2580%258B_WhiteCat_2.1_%257E_old-blue.osk/file)┃[WhiteCat](https://www.twitch.tv/whitecatosu)'s Skin
 ![](https://i.imgur.com/HWssDmP.png)
+# [-           chicken](https://tinyurl.com/fpxemznv)
+![](https://i.imgur.com/YddqpFw.png)
+# [-           chicken dawn](https://tinyurl.com/2emvddb4)
+![](https://i.imgur.com/tgTxUBf.png)
+# [-           chicken dt](https://tinyurl.com/2mdz66b7)
+![](https://i.imgur.com/GSp0jVF.png)
+# [-           chicken ez](https://tinyurl.com/2nwsn2hj)
+![](https://i.imgur.com/yUczUzp.png)
+# [mastasz](https://drive.google.com/file/d/1Y8wFEXZGmxeLAREbClpgT-x6ihTtq_lC/view?usp=sharing)
+![](https://github.com/user-attachments/assets/e3c2ea3c-adf8-4145-a47f-77e35b2e9ced)
+# [_Shield](https://tinyurl.com/32yksx8u)
+![](https://i.imgur.com/iAGhpV6.png)
+# [Mathi ensalada](https://github.com/ryancranie/skinhub/raw/tyfh/player/lifeline/Mathi%20ensalada.osk)
+[![](https://osu.ppy.sh/ss/18336165/d397)](https://github.com/ryancranie/skinhub/raw/tyfh/player/lifeline/Mathi%20ensalada.osk)
+# [Hyeok2044](https://drive.google.com/file/d/1Y68nMJBtwOggMiMlkjOPvHkEiD2RffMk/view)
+![](https://pbs.twimg.com/ext_tw_video_thumb/1894066200805871619/pu/img/JVN_10eXKgi1eWRi?format=jpg&name=large)
 <br>
 <br>
 # DT
