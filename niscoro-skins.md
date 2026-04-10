@@ -1,8 +1,6 @@
 # Niscoro's osu! skins 
 Skins that may be used by osu! streamer [Niscoro](https://www.twitch.tv/niscoro)
 <br>
-If the skin you want isn't here, please ask the streamer or chat
-<br>
-[CURSOR PACK](https://tinyurl.com/3wfwsbsw)
+if you want a skin added, please ask in chat
 <br>
 
